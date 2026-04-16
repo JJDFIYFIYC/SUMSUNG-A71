@@ -1,0 +1,1 @@
+# SUMSUNG-A71
